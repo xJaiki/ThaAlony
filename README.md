@@ -1,4 +1,4 @@
-- 👋 Yo, I’m @ThaAlony, an italian developer wanna be
+- 👋 Yo, I’m an italian developer wanna be
 - 👀 I’m interested in finding my own way..
 - 🌱 I was born in 2003 so i'm still young
 - 💞️ I’m collaborating with some of my friends
